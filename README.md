@@ -1,1 +1,3 @@
 # Worthwhile_Shit
+
+A place to stick random goodies that may or may not come in handy at a later date..Damnit, that sounded bad...You know what i meant, fuck it...
